@@ -1,4 +1,4 @@
-# Hey Visitor, How you doing? ![:wave:](https://c.tenor.com/pvFJwncehzIAAAAd/hello-there-private-from-penguins-of-madagascar.gif)
+# Hey Visitor, How you doing? ![:wave:](https://media2.giphy.com/media/26xBwdIuRJiAIqHwA/200w.webp?cid=ecf05e47unm8yxavarn2ua7h2c3sas4e7csxzbf8441y7c7z&rid=200w.webp&ct=g)
 
 
 ### 🔭 Computer Science Student
