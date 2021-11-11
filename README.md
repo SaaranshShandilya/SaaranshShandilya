@@ -1,4 +1,4 @@
-# Hey Visitor, How you doing? ![:wave:](https://images.vexels.com/media/users/3/206062/isolated/preview/d0de78df943ea9b630c87ec98cf902ef-hi-speech-bubble-doodle.png)
+# Hey Visitor, How you doing? ![:wave:](https://c.tenor.com/pvFJwncehzIAAAAd/hello-there-private-from-penguins-of-madagascar.gif)
 
 
 ### 🔭 Computer Science Student
